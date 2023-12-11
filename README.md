@@ -22,7 +22,7 @@ Space Dominance:
 The militarization of space is a burgeoning frontier, and military expos become platforms to reveal advancements in space technology. Satellite systems, space-based weaponry, and communication networks play a pivotal role in discussions about achieving supremacy beyond Earth's atmosphere.
 
 Green Defense Technologies:
-A growing emphasis on sustainability and environmental consciousness is reflected in <a href="https://military.news/">military.news</a>. Exhibitors showcase eco-friendly defense technologies, such as solar-powered military installations, energy-efficient vehicles, and environmentally conscious weaponry.
+A growing emphasis on sustainability and environmental consciousness is reflected at <a href="https://military.news/">military.news</a>. Exhibitors showcase eco-friendly defense technologies, such as solar-powered military installations, energy-efficient vehicles, and environmentally conscious weaponry.
 
 International Collaborations:
 Military expos facilitate international collaborations and partnerships. Nations come together to share insights, pool resources, and collectively address global security challenges. These alliances contribute to the creation of a more interconnected and secure world.
